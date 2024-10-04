@@ -143,3 +143,21 @@ Happy learning with Notify! 🎓
 _This project was developed by **Team Hash** for **Hack The Space 2.0**._
 
 ---
+
+UMANG SHUKLA // < 241B633 >
+I AM A NEWBIE 
+.
+.
+NOT A NOOB
+.
+.
+.
+.
+
+
+SIGNING OFF
+.
+.
+.
+.
+PEACE
